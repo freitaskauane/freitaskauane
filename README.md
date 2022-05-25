@@ -1,0 +1,3 @@
+- 👋 ola meu nome é @freitaskauane
+- 👀 estou interresada a aprender 
+- 🌱 quero saber como programa 
